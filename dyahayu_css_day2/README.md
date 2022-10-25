@@ -1,1 +1,1 @@
-yasinda ilmia sistem informasi
+dyah ayu sistem informasi
